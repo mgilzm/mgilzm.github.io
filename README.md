@@ -38,3 +38,6 @@ Mis ambiciones son amplias y a veces caóticas, pero siempre giran en torno a en
 
 ---
 *¿Eres de mi tipo de gente? Normal por fuera, pero un universo inmenso y en constante expansión por dentro*
+
+
+Mi blog también en blogger: https://mgilzm.blogspot.com/
