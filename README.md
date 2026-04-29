@@ -34,7 +34,7 @@ Mis ambiciones son amplias y a veces caóticas, pero siempre giran en torno a en
 * **Experimentos con IA:** Pruebas, desarrollos y reflexiones sobre la inteligencia humana frente a la artificial.
 * **Proyectos Divulgativos:** Cursos, tutoriales y reflexiones sobre la vida y el aprendizaje continuo.
 
-> "En una sociedad donde todo el mundo mira al suelo, busca a quienes son como tu y miran al cielo"
+> "En una sociedad donde todo el mundo mira al suelo, busca a quienes son como tú y miran al cielo"
 
 ---
 *¿Eres de mi tipo de gente? Normal por fuera, pero un universo inmenso y en constante expansión por dentro*
